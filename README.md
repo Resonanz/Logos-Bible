@@ -1,5 +1,6 @@
 # Logos-Bible
 
+### How a Skeptical Philosopher Becomes a Christian by Dr. Larry Sanger (co-founder of Wikipedia)
 - Pages How a Skeptical Philosopher Becomes a Christian – Larry Sanger.docx
 
 Original: https://larrysanger.org/2025/02/how-a-skeptical-philosopher-becomes-a-christian/
